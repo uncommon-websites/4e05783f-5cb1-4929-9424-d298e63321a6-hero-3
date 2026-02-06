@@ -1,0 +1,2 @@
+# 4e05783f-5cb1-4929-9424-d298e63321a6-hero-3
+Hero section variant 3 for 4e05783f-5cb1-4929-9424-d298e63321a6
